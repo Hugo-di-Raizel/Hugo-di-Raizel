@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hugo-di-Raizel
+- 👋 Hi, I’m Raizel
 - 👀 I’m interested in BYOND
 - 🌱 I’m currently learning DM
 - 💞️ I’m looking to collaborate on anime games
