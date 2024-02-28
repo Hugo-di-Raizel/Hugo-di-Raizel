@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hugo-di-Raizel
 - 👀 I’m interested in BYOND
 - 🌱 I’m currently learning DM
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on anime games
 - 📫 How to reach me: (Discord)Kuro Raizel#0846
 
 <!---
